@@ -1,9 +1,6 @@
 - 🌱 I’m currently in 8th grade
-- 👯 I’m looking for twoh waifu v3 in YBA
-- 🤔 I’m looking for help with making
-- 💬 Ask me about anything in my discord, link's here
-- <------
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- 👯 I’m can't stand to go home tomorrow!
+- 💬 Ask me about anything in my discord https://discord.com/users/493135056819191841
+- 😄 Pronouns: (im NOT supporting all this stuff) he/him / suspiciousmalware
+- ⚡ Not really fun fact: The world wastes about 1 billion metric tons of food each year.
+- # TOMORROW
