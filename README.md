@@ -1,0 +1,9 @@
+- 🌱 I’m currently in 8th grade
+- 👯 I’m looking for twoh waifu v3 in YBA
+- 🤔 I’m looking for help with making
+- 💬 Ask me about anything in my discord, link's here
+<------
+- 📫 How to reach me: ...
+- 😄 Pronouns: ...
+- ⚡ Fun fact: ...
+-->
