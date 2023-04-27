@@ -6,8 +6,9 @@
 - random games on my PC (ultrakill, etc.)
 ### learning:
 - how to type
-- in 8th grade
+- in 8th grade.
+## other very (fr☠️) useful info:
 -  Ask me about anything in my discord https://discord.com/users/493135056819191841
 -  Pronouns: (im NOT supporting all this stuff) he/him / suspiciousmalware
 -  Not really fun fact: The world wastes about 1 billion metric tons of food each year.
-- # TOMORROW
+# TOMORROW
