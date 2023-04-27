@@ -2,7 +2,7 @@
 ## what am i doing:
 ### playing:
 - Roblox(YBA, BF, others);
-- Minecraft(OriginRealms, ItTrouble, others):
+- Minecraft(OriginRealms, InTrouble, others):
 - random games on my PC (ultrakill, etc.)
 ### learning:
 - how to type
