@@ -6,7 +6,7 @@
 - random games on my PC (ultrakill, etc.)
 ### learning:
 - how to type
-- in 8th grade.
+- how to not ruin myy life rn even worse.
 ## other very (fr☠️) useful info:
 -  Ask me about anything in my discord https://discord.com/users/493135056819191841
 -  Pronouns: (im NOT supporting all this stuff) he/him / suspiciousmalware
